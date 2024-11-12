@@ -21,7 +21,7 @@ Welcome to my GitHub profile! I'm a passionate entrepreneur, accountant, educato
  
 - LinkedIn: [Ramesh Pokhrel](https://www.linkedin.com/in/ramesh-pokhrel/)  
 - Website: [Mastersaab](https://www.mastersaab.com) | [MeroDriving](https://www.merodriving.com)  
-- Email: [Your Email](mailto:your.iamramesh73782@gmail.com)
+- Email: [Click Here](mailto:your.iamramesh73782@gmail.com)
 
 ---
 
